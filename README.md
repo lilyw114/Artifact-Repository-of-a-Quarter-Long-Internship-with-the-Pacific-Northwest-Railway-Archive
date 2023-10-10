@@ -20,10 +20,10 @@
 
 ***My work for weeks two and three will be conducted at home using the aforementioned hard drive. My condition is improving, but I can't risk endangering any of the other volunteers with this illness. So far, that work from home process has involved updating the names of maps from Washington and Idaho. The digitization standards of the PNRA are constantly evolving, so I am shifting dashes to underscores and commas to plain text in order to keep with the times.***
 
-**For a while, I was incredibly sick and completely incapacitated, but as the days progress I have more energy for working. It's frustraing to feel stuck, but I am thankful for the generosity of the archive in giving me something purposeful to do with the time I spend at home.***
+***For a while, I was incredibly sick and completely incapacitated, but as the days progress I have more energy for working. It's frustraing to feel stuck, but I am thankful for the generosity of the archive in giving me something purposeful to do with the time I spend at home.***
 
 ***When I return, masked up this coming Thursday the 12th, I will launch into developing my LOA with my supervisor Dean, breaking down the tasks I want to pursue this quarter in detail, and recieving an in-depth tour of the prints and negatives by a specialist just one week later. It's a dynamic time for me, just starting out, and the hours lost will be easily replaced once I hone my faocus with Dean. Also, I am attempting to arrange a capstone project in partnership with the PNRA anyhow, so I'm still working through the recommended literature in time for my return to the archive.***
 
-**For now, I am sick and trapped at home, but the upside is that I am becoming very comfortable with renaming files according to internal standards, and troubleshooting with my supervisor where issues occur. By Thursday, I should have more to say on this matter.***
+***For now, I am trapped at home, but the upside is that I am becoming very comfortable with renaming files according to internal standards, and troubleshooting with my supervisor where issues occur. By Thursday, I should have more to say on this matter.***
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------

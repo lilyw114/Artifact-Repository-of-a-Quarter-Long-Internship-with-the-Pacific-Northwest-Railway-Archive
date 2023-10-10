@@ -22,7 +22,7 @@
 
 ***For a while, I was incredibly sick and completely incapacitated, but as the days progress I have more energy for working. It's frustraing to feel stuck, but I am thankful for the generosity of the archive in giving me something purposeful to do with the time I spend at home.***
 
-***When I return, masked up this coming Thursday the 12th, I will launch into developing my LOA with my supervisor Dean, breaking down the tasks I want to pursue this quarter in detail, and recieving an in-depth tour of the prints and negatives by a specialist just one week later. It's a dynamic time for me, just starting out, and the hours lost will be easily replaced once I hone my faocus with Dean. Also, I am attempting to arrange a capstone project in partnership with the PNRA anyhow, so I'm still working through the recommended literature in time for my return to the archive.***
+***When I return, masked up this coming Thursday the 12th, I will launch into developing my LOA with my supervisor Dean, breaking down the tasks I want to pursue this quarter in detail, and recieving an in-depth tour of the prints and negatives by a specialist just one week later. It's a dynamic time for me, just starting out, and the hours lost will be easily replaced once I hone my focus with Dean. In coming weeks, I will attempt to arrange a capstone project in partnership with the PNRA, and I'm still working through the recommended literature in time for my return to the archive.***
 
 ***For now, I am trapped at home, but the upside is that I am becoming very comfortable with renaming files according to internal standards, and troubleshooting with my supervisor where issues occur. By Thursday, I should have more to say on this matter.***
 

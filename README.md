@@ -148,6 +148,7 @@
 **Week Eleven Reflections and Summary: Dated 12/10/2023**
 
 ***Well, I've submitted two exams! The other two, my capstone and this Directed Fieldwork, are on hold. When I was in undergrad, this never happened. The only two times I missed class or submitted late were due to a broken hand in a pen-and-paper law studies exam, and the death of a family member. The shame is intense, but I won't squander the grace the professors have given me and will instead use it to focus on my health, and completing my hours at the PNRA. That's the right thing to do. I know that help is freely offered at UW, but I need to be smart about my recovery tactic at this time, for their sake as well as mine.***
+
 ![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/54c924d9-0459-4c9b-a519-2794964471f1)
 
 ***In the meantime, here's something that brightened my day. It's the creek where I used to fish back in Bellingham when I went to Western Washington University...but this map is from 1850. There's something so magical about digitizing the hand-drawn lines of a surveyor who stood exactly where you stand, and the connection which forms between you like a one-way mirror. Nothing like it on Earth, and it's a major motivator for me to continue with this archive position.***

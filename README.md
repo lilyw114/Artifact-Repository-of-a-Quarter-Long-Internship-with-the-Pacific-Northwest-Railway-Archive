@@ -87,10 +87,19 @@
 
 **Week Seven Reflections and Summary: Dated 11/13/2023**
 
-***My "finding aid for the finding aids" has come to fruition! Dean and I presented a fifteen minute PowerPoint of my process and final product to Virginia (a set of four Excel templates), including time for questioning. Her largest concerns were with accessibility given the volunteer base here at the PNRA, and with the general acceptance of one single standard for data entry after ten years of completely randomized standards for metadata storage. Honestly, I felt I was able to respond well, especially given my detailed notes from the listening tour and adherence to Web Content Accesibility Guidelines as well as AToM compliance by design. To access the PowerPoint. It's a bit spartan, but that is what Dean requested:***
+***My "finding aid for the finding aids" has come to fruition! Dean and I presented a fifteen minute PowerPoint of my process and final product to Virginia (a set of four Excel templates), including time for questioning. Her largest concerns were with accessibility given the volunteer base here at the PNRA, and with the general acceptance of one single standard for data entry after ten years of completely randomized standards for metadata storage. Honestly, I felt I was able to respond well, especially given my detailed notes from the listening tour and adherence to Web Content Accesibility Guidelines as well as AToM compliance by design. To access the PowerPoint, look for "Excel Catalog Template PowerPoint Presentation.pdf" within the folder "Assigned Coursework". It's a bit spartan, but that is what Dean requested. In the meantime, take a look at my Photos template with an entire Phillips slide collection that I cataloged all my myself!***
 
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/331ae467-5034-472e-8cd4-c08aec2ba086)
 
+***Each slide is about the size of a postage stamp, but packed with color and detail, which can be seen when held to the light. Dean taught me to scan them using a special set of plastic holders, after brushing dust away with a camel hair paintbrush and a can of air duster. So beautiful!***
 
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/1506fb58-79ff-478c-b455-06d7209883ba)
+
+**Do bear in mind that these images were scanned at 4800 dots per inch, which is six times the level of detail that the United States Geological Survey maintains for their raster data. Absolutely incredible, even when blown up so large on the computer monitor, the details are minute. I am young and slides were before my time, but it is spectacular and far outpaces photographs in my opinion, in terms of storage capability. However, a few members of the archive did share that slides are vulnerable to chemical damagage, UV damage, and corruption.***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/424f570f-df8e-4bb3-a882-3f1e9d9a7ffb)
+
+***On an unrelated but cheery note, my grandparents are going to lend me their collection of slides from the 1970s so that I can digitize them at home! One more wonderful benefit of my time at the PNRA.***
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 

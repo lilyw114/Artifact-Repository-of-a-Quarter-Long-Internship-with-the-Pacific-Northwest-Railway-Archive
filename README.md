@@ -118,27 +118,79 @@
 
 **Week Nine Reflections and Summary: Dated 11/27/2023**
 
+***Being totally honest, I missed both days this week due to illness. I have no other excuse; I was just too sick. Each day, I wrote to Dean the night before, or an hour before work, and I feel this was truly disrespectful. However, I kept kicking myself until an hour or a night before because I promised myself that I would go in the next day. My levels of exhaustion are probably hard to understand for somebody who doesn't live with my disability. The less I sleep, the more wired I become, until I am completely delusional and my immune system and heart begin misfunctioning. Above all, I don't want to end up in a hospital with an unknown return date, but it is not acceptable to be absent so often. If there were some way to predict the future, I would opt for that immediately.***
+
+***My other courses at UW are not doing well either. For some reason, I find that I can only sleep between five and seven in the morning, and that's if I take triple the dose of sedatives that I was prescribed at UW this past week. There's nothing else to do but wait, even if that is torture. I don't expect my supervisors to understand, but I have been fully transparent with them as well as my professors. Thankfully, Dean has given me a big box of slides that I can work on slowly at home, annotating each with AToM-compliant Scope & Content fields. More time consuming than you'd think!***
+
+***However embarassing my situation has become, I am very grateful for some small way to contribute. Dean reminds me that it's a volunteer archive about trains, so it's not like there's a gun to my head where deadlines are concerned. This does reflect on myself as an intern, though, and I vow to get well as soon as humanly possible.***
+
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **Week Ten Reflections and Summary: Dated 12/4/2023**
+
+***This week, I applied for two PhD programs in Information Science. One would mean continuing with the UW iSchool. The other is at Penn State, because my sister is there. When I'm so sick at unpredictable times, I need to stay close to family. Dean has been wholly supportive, and Russ even offered to write a letter of recommendation for me if that were necessary. They are wonderful people. Slowly, I seem to be getting better with the adjusted medication regimen, and I have been keeping my doctor on speed dial, pretty much. So, life at the archive has been peaceful. Each of the members has some little Christmas decoration they've posted by their desk: maybe it's a miniature lighted tree, or a snow globe, or some string lights across their monitor.***
+
+***I knew the generational gap was large, but I had to laugh when one member offered to go Wassailing with me!***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/a744c483-ad79-46f5-9673-7c2e250055c3)
+
+***What you're looking at is an incredibly large track profile, which isn't even fully in view. It is likely close to 60 feet long, scanning at around 3GB at 300 dpi. To put that in scale, that's larger than a Harry Potter and the Chamber of Secrets DVD! All of the members had a laugh watching us scramble to feed it through the scanner, as it came out in huge reams like fresh noodles. I may never witness something so strange again.***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/21ee6e8f-ce62-42a0-9024-68460172b20b)
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/9675b01e-ecab-4939-b29e-128f8600d2b6)
+
+***My exams are coming up, and I'm frightened that I'm not well enough to continue. The archive is one thing; so bright and friendly and overall just casual. There's not a whole lot of pressure to complete a project so long as one doesn't drown in the diverse array of tasks, and is accomplishing something. But I wonder how the next few weeks will play out given that I'm not back to normal. There have been a few instances where Dean ended the day early or told me to go home because of my sickness, even though I was trying my best. He is a kind person, highly productive, and I know he commutes a great distance to be there supporting me.****
+
+***I just hope everything comes together somehow, because the road ahead feels longer than that map.***
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **Week Eleven Reflections and Summary: Dated 12/10/2023**
 
+***Well, I've submitted two exams! The other two, my capstone and this Directed Fieldwork, are on hold. When I was in undergrad, this never happened. The only two times I missed class or submitted late were due to a broken hand in a pen-and-paper law studies exam, and the death of a family member. The shame is intense, but I won't squander the grace the professors have given me and will instead use it to focus on my health, and completing my hours at the PNRA. That's the right thing to do. I know that help is freely offered at UW, but I need to be smart about my recovery tactic at this time, for their sake as well as mine.***
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/54c924d9-0459-4c9b-a519-2794964471f1)
+
+***In the meantime, here's something that brightened my day. It's the creek where I used to fish back in Bellingham when I went to Western Washington University...but this map is from 1850. There's something so magical about digitizing the hand-drawn lines of a surveyor who stood exactly where you stand, and the connection which forms between you like a one-way mirror. Nothing like it on Earth, and it's a major motivator for me to continue with this archive position.***
+
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **Week Twelve Reflections and Summary: Dated 12/17/2023**
 
+***Today was a slow day. More 2008 BSNF maps to be scanned, and more files to be named. I alternated between the printer and my desk chair like the seat was a Hibachi grill, but it feels good to stay active. I don't doubt that the company of the other volunteers is keeping me healthy as well. Of course, it feels selfish that this log has devolved into a personal jounrey more than a point of career development and training, but such is the reality of my current situation. Dean has asked me to tally my hours, and it's getting close to the finish line! The other members of the archive are talking about their Christmas plans, and how some are hoping to visit on the 26th this year. I agreed that it would be fun for me, as I'm living so close to the archive. Each day, somebody brings more cookies. Come to think of it, I should be doing that too...***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/eef01aed-e3bf-4564-a3a0-4c6972d252a9)
+
+***No snow this year, except for the massive banks of scrolling white drifts which come across the scanner each half hour. There's something enchanting about the process, like waves of the sea. I love being here. Today, I made my intent very clear to Dean that I wish to stay at the PNRA as a volunteer. He seems happy to hear that, thankfully.***
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **Week Thirteen Reflections and Summary: Dated 12/24/2023**
 
+***Merry Christmas to all! Although I was feeling in the mood for some archiving, Dean emailed me today that the archive is closed until the 30th. Bummer! I'm spending the holiday in Bellingham with my grandparents, and heading down to Whatcom Creek, the map for which you've seen above. Besides that, I am sleeping as much and whenever I can, and gearing up for next quarter. It has been a long and exhausting trip this quarter, with many skills to learn and not much time to rest. Obviously, I haven't done a perfect job, but it's in the struggling that so much experience and useful wisdom can be gained. I feel that I have learned more about negotiating with stakeholders through my templates and digitization standards initiatives than I have about archival processes and technology, which is unexpected to say the least!***
+
+***Something that's on my radar for the future is drafing an Emergency Preparedness Plan for the PNRA, perhaps formatted as a poster. It could include response protocols for unforseen distasters, including who to contact and life-saving resources. Given the aging population of the archive, it's one possibility for my future activity post-internship. Here's a little draft I made:***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/376affe8-f2dc-4b75-9301-6349a5449670)
+
+***One of my supervisors, Russ, is a professor at Norwich and his students draft EPP documents regularly. He's going to be a fantastic resource for me in that arena.***
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-**Week Fourteen Reflections and Summary: Dated 12/31/2023**
+**Week Fourteen Reflections and Summary: Dated 12/31/2023 to 1/3/2024**
+
+***The second of January...2024(!)...was my last official day. All that's left is signing a W-9 so that payment can be arranged, and continuing as a volunteer. To my elation, I've already recieved an email containing a few places where I can help, and a plan to come back in next Tuesday for map scanning! Yippee!***
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/08e0d7d1-db1f-444b-868b-60fce4ba1808)
+
+***For the purposes of reading, consider my PowerPoint as well as the shared images of template and scanning progress to be my "final artifacts". Most of the work that I have completed is in-house and proprietary. In other words, I don't really have permission to fully disclose. It's not secret, rather it's not mine. My four big projects produced during my time at the PNRA have included: the BNSF map scanning, my digitization standards update, the template development process and product set, the Phillips slides processing. However, what's coming next is my Emergency Preparedness Plan. That will certainly be posted here for records keeping once it is available. It should be a fairly snazzy and comprehensive yet brief guide to disaster response, in the form of a full-gloss poster that I'll produce at the McCarty Makerspace on UW campus.***
+
+***As mentioned in my Final Reflection, available as "Assignment 5" within the folder "Assigned Coursework", my supervisor Dean took me to Panda Express for my final lunch as part of intern tradtion. He shared with me some valuable insights about interview ettiquette, my hits and misses, and how to proceed with my PhD interview process were I to make it to that stage. Actually, I should find out in a week or two, which is terrifying. Although Dean doesn't necesarily understand my disability or the challenges I've faced during my internship, he is a father to three children around my age, and has indispensable widsom towards making decisive career choices. I feel his support and appreciate it more than I could possibly express. My labors towards the PNRA shopping list of goals are accounted for, and I feel welcome as a part of their volunteer community...although I am almost 50 years younger than nearly everyone else.***
+
+***The mission of the iSchool is to promote Diversity, Equity, and Inclusion through educational opporutnities, and thankfully, I feel this is something I've been able to enact as a part of my internship. Working with seniors, some near 100 years of age, on complex technological objectives in order to digitize materials otherwise lost to history for new Internet audiences feels at the perfect intersection of iSchool IDEAS values. Plus, I felt fully suppported through each challenge my own disability, age, gender, and unfamiliarity with archives and the professional sphere in general presented this quarter.***
+
+***What comes next is finishing my school assignments (DONE AS OF 1/3/2024!) and finding a way to thank Dean and my professors Helene Williams and Chance Hunt, apart from my continued participation in their UW courses (I will have both professors again this quarter) and at the PNRA. As I am no longer Dean's intern, my role will be slightly different. These days, I'm just Dean's friend with a hundred hours of tranining in wide-format scanning under my belt.***
+
+***If anything you've read sounds appealing, fascinating, or otherwise fun, please consider dropping by the PNRA on a Tuesday at 25 SW 153rd St, Burien, WA 98166. There's a chance that I'll be there...a good chance, actually. Everybody knows me by name, and I appreciate the lunch stories as much as the academic work. There's something truly magic about this tiny place in the world, and I think you might love it too. Stay tuned for my EPP, and have yourself a wonderful New Year!***
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------
 

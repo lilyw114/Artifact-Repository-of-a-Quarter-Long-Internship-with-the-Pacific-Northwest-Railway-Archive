@@ -91,11 +91,11 @@
 
 ![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/331ae467-5034-472e-8cd4-c08aec2ba086)
 
-***Each slide is about the size of a postage stamp, but packed with color and detail, which can be seen when held to the light. Dean taught me to scan them using a special set of plastic holders, after brushing dust away with a camel hair paintbrush and a can of air duster. So beautiful!***
+***Each slide is about the size of a postage stamp, but packed with color and detail, which can be seen when held to the light. Dean taught me to scan them using a special set of plastic holders, after brushing dust away with a camel hair paintbrush (visible in the image) and a can of air duster. So beautiful!***
 
 ![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/1506fb58-79ff-478c-b455-06d7209883ba)
 
-**Do bear in mind that these images were scanned at 4800 dots per inch, which is six times the level of detail that the United States Geological Survey maintains for their raster data. Absolutely incredible, even when blown up so large on the computer monitor, the details are minute. I am young and slides were before my time, but it is spectacular and far outpaces photographs in my opinion, in terms of storage capability. However, a few members of the archive did share that slides are vulnerable to chemical damagage, UV damage, and corruption.***
+***Do bear in mind that these images were scanned at 4800 dots per inch, which is six times the level of detail that the United States Geological Survey maintains for their raster data. Absolutely incredible, even when blown up so large on the computer monitor, the details are minute. I am young and slides were before my time, but it is spectacular and far outpaces photographs in my opinion, in terms of storage capability. However, a few members of the archive did share that slides are vulnerable to chemical damagage, UV damage, and corruption.***
 
 ![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/424f570f-df8e-4bb3-a882-3f1e9d9a7ffb)
 
@@ -104,6 +104,15 @@
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **Week Eight Reflections and Summary: Dated 11/20/2023**
+
+***More scanning and more scanning! After the Phillips collection of 75 slides, I have begun clearing up a list of all internal PNRA files from their SharePoint server, by downloading a copy of the file and moving it to Excel where I am able to manipulate the columns and integrate the data with my Excel catalog templates. It is a massive undertaking, and the uploading of the file alone took nearly an hour. Any touch to the already powerful archive computers sends Excel into a tailspin, but somehow, it got done. Thankfully, there's always more to do at the archive, and I was able to bounce between chatting with volunteers and scanning a couple of the endless supply of Jim Frederickson maps. Frederickson is one of the first and largest donors to the archive, and there are abour 20 boxes of maps in the attic which Dean and I have begun to slowly unbox, label, scan, rename, delete old files, rebox, relabel, and replace.***
+
+
+![image](https://github.com/lilyw114/Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive/assets/126448804/2ab5d7dc-3ff6-4ca6-96e1-31cfff4e038f)
+
+***One of those boxes, unpacked, typically looks like this beside the wide format scanner. After unboxing, unfurling, and taping together delicate mechanical drawing edges, those not already in the system (checked with a quick Ctrl+F and their aforementioned N-number by Dean and me upstairs) get their dog ears flattened by burnishing against the head of the scanner, and if still resistent, slipped into a mylar casing before scanning. Then, they must be rolled up again, using pill canisters full of airsoft pellets as weights while rolling, and tucked away forever.***
+
+***Although I want so badly to persevere with these initiatives, I must admit that my health is declining. The days feel extremely long when I haven't slept at all for a few nights in a row, and the maps are truly endless regardless of what I do. What helps is the warm coffee and endless supply of cookies and candy always left out at the archive...somehow, I have mysteriously gained three pounds!***
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 

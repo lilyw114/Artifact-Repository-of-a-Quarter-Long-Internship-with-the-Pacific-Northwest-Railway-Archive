@@ -87,6 +87,10 @@
 
 **Week Seven Reflections and Summary: Dated 11/13/2023**
 
+***My "finding aid for the finding aids" has come to fruition! Dean and I presented a fifteen minute PowerPoint of my process and final product to Virginia (a set of four Excel templates), including time for questioning. Her largest concerns were with accessibility given the volunteer base here at the PNRA, and with the general acceptance of one single standard for data entry after ten years of completely randomized standards for metadata storage. Honestly, I felt I was able to respond well, especially given my detailed notes from the listening tour and adherence to Web Content Accesibility Guidelines as well as AToM compliance by design. To access the PowerPoint. It's a bit spartan, but that is what Dean requested:***
+
+
+
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 

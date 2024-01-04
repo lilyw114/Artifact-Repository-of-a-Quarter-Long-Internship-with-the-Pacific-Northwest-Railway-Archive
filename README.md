@@ -1,6 +1,6 @@
 # Artifact-Repository-of-a-Quarter-Long-Internship-with-the-Pacific-Northwest-Railway-Archive
 
-**NOTE: Each of the weekly journal posts may be found in this README.md markdown file. The remainder of the quarterly projects (five assignments in total) may be found within the "Assigned Coursework" file within this repository. Assignment five contains images of the products of my work with my host organization, and each of the other projects relate to my student progress through the quarter.** 
+**NOTE: Each of the weekly journal posts may be found in this README.md markdown file. The remainder of the quarterly projects (five assignments in total) may be found within the "Assigned Coursework" file within this repository. Assignment five contains a reflection upon my work with my host organization, and each of the other projects relate to my student progress through the quarter as described in my log.** 
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
